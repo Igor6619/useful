@@ -1,0 +1,1 @@
+использую иконки с [ Remix Icon](https://remixicon.com/) - Огромный каталог
